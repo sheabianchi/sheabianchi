@@ -1,23 +1,32 @@
-<img align="center" src="https://64.media.tumblr.com/c349ed654c49a6552bb2cd5dd37c95ac/48ed04fb7638e7a9-af/s1280x1920/57f680bcb112ff48b96b598a96fca9a090941161.gifv"></img>
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Monospace&size=16&duration=2946&pause=91&color=71AA71&center=true&width=435&lines=MMan+.+.+I+need+you+to+helpme%2C+Devinn+.+.;I+gotta+problem+I'm+gonnadie%2C+man+.+.;I+jjust+wanna+quit+.+." alt="Typing SVG" /></a>
+
+<p align="center"> <img src="https://files.catbox.moe/ked4nw.gif">
+<p align="center"> <img src="https://files.catbox.moe/qi89os.png">
+
 <div align="center">
-  <img align="right" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1545_20260814201311.png" width="360">
+  <img align="left" src="https://files.catbox.moe/h3hdrd.webp" width="360">
   <br>
   <br>
-  <img align="center" src="https://komarev.com/ghpvc/?username=millerarthur&color=BAB27F&abbreviated=false&style=round-square&label=customers">
   <br>
   <br>
-  <img src="https://64.media.tumblr.com/dbcd99d857f44cab4423938de5b9a66c/86b86c7751a0d345-20/s1280x1920/c53a88c37f2763e1982a36d6f533ffa51b767c7d.pnj" width="360">
+<p align="center"> $\text{\color{#71AA71FF} Shea}$ $\text{\color{#551c39} Bianchi}$  </a>  
+  <br>
+<br> 
+  <img src="https://files.catbox.moe/n4b14p.png">
+
+<p align="center">  $\text{\color{#71AA71FF} fictionkin}$ $\text{\color{#718e55} ,}$ $\text{\color{#8eaa8e} comf}$ $\text{\color{#718e71} char}$
+<p align="center">  $\text{\color{#717139} doubles}$ $\text{\color{#71aaaa} int}$ $\text{\color{#718e55} !!}$
+  
+<a href=https://github.com/travisrapidd> 　main　 </a>
   <br>
   <br>
-  Follow main github <a href=https://github.com/dr-vanta> dr-vanta </a>
+
+
+<br>
+<div align="center">
   <br>
   <br>
-  readme art by philip-thevampire on tumblr
+<img src="https://files.catbox.moe/9wiuin.webp">
   <br>
   <br>
-  <a href="https://www.youtube.com/watch?v=7cSbjviO9sk"> <img src="https://readme-typing-svg.herokuapp.com/?font=Henny+Penny&duration=3500&pause=1000&color=697A6C&center=true&width=450&lines=%E2%80%98+Not+a+lot%2C+just+forever+%E2%80%99;%E2%80%98+Intertwined%2C+sewn+together+%E2%80%99;%E2%80%98+Like+the+rock+bears+the+weather+%E2%80%99;%E2%80%98+Not+a+lot%2C+just+forever+%E2%80%99;%E2%80%98+Not+a+lot%2C+just+forever+%E2%80%99;%E2%80%98+Intertwined%2C+sewn+together+%E2%80%99;%E2%80%98+As+the+wren+sheds+her+feather+%E2%80%99;%E2%80%98+Not+a+lot%2C+just+forever+%E2%80%99"></img> </a>
-  <br>
-  <br>
-  <img src="https://64.media.tumblr.com/dbcd99d857f44cab4423938de5b9a66c/86b86c7751a0d345-20/s1280x1920/c53a88c37f2763e1982a36d6f533ffa51b767c7d.pnj" width="360">
-</div>
-<img align="center" src="https://64.media.tumblr.com/c349ed654c49a6552bb2cd5dd37c95ac/48ed04fb7638e7a9-af/s1280x1920/57f680bcb112ff48b96b598a96fca9a090941161.gifv"></img>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Barriecito&size=18&duration=2241&pause=4&color=718E55&center=true&width=435&lines=Beheaded+and+broken;Beheaded+and+broken;I+just+want+to+be+pure;Just+want+to+be+pure;Just+want+to+be+pure;Beheaded+and+broken;Beheaded+and+broken;I+just+want+to+be+pure;Just+want+to+be+pure;Just+want+to+be" alt="Typing SVG" /></a>
